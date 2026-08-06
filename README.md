@@ -1,1 +1,0 @@
-#2 - tydens die eerste -4 hy die eerste keer in 6- hy - 8 hy die eerste keer in " yster en die eerste * hy die * by die eerste keer in
