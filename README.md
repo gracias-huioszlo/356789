@@ -1,1 +1,1 @@
-🇺📖
+Si no te    -     jode    ☎    ↺     📨    ⇱    zona   「     🩺    〕    🏢    hoy en     ⏳
